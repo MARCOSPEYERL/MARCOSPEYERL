@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MARCOSPEYERL
-- 👀 I’m interested in making games 
-- 🌱 I’m currently learning programing games at byjus school
+- 👀 I’m interested in softwares 
+- 🌱 I’m currently learning IT in FECAP
 - 💞️ I’m looking to collaborate on games or sites
 - 📫 How to reach me send a direct on instagram or facebook my @peyerlmarcos
 
